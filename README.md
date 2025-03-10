@@ -10,3 +10,6 @@
 lildrama69/lildrama69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+43-year-old fresh fisearch.Just trying to make some extra cash. 43-year-old fresh fisearch. Just trying to make some extra cash.
+ Ave no idea what the hell I'm doing. So I'm opening advice. So if you have any advice.So if you have any advice.
+Or frankly a picture you can draw out for me I appreciate it
